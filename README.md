@@ -1,2 +1,2 @@
 # rezsotek.github.io
-Stellina-AAC Privacy Policy
+Stellina AAC Privacy Policy
